@@ -9,5 +9,3 @@ Don't hesitate to connect or correct my code, I'm eager to learn from everyone w
 
 
 I am also a pianist 🎹
-
-Interested in travel, languages, nature, sciences 😊
